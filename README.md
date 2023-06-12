@@ -11,3 +11,6 @@ https://youtu.be/p8WCRLnLzY8
 
 QAS Class Sweatshirts Photos and Raw Interviews Here:
 https://1drv.ms/f/s!Agjfehi1zZ-nqcdvseo_2xfBKfDcCA?e=vEm59D
+
+Here is the folder of all of the pics individual and class events, throughout the years:
+https://1drv.ms/u/s!Agjfehi1zZ-nqbUBa3mSpDkbekmdSw?e=es1b1L
